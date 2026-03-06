@@ -20,7 +20,6 @@ Here are some ideas to get you started:
 
 Me chamo Tiago Henrique, tenho 17 anos e sou natural de São Paulo. Faço o ensino médio em escola publica juntamente com o curso técnico informática para Internet integrado no ensino medio na ETEC. Armando José Farinazzo em Fernandópolis-SP. gosto de tecnologia,jogos,e homework Cs2.
 
-love is love 🏳️‍🌈
 
 
 ---
